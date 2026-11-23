@@ -1,2 +1,0 @@
-# Alicia-Coffee-Shop
-Cafeteria
